@@ -38,33 +38,49 @@
 
 ### Capitol Hill — Cooolest part of town. All the bars and show venues are here
 
-* Vivace Sidewalk Coffee Bar (best coffee in Seattle. Order the Caffe Nico!)
+#### Coffee
+* Vivace Sidewalk Coffee Bar - order the Caffe Nico!
 
-* Mystery Coke Machine
+#### Brunch
+* b~side foods - my favorite brunch/coffee spot. suuuuper trendy. check hours
+* Corvus - tasty brunch, awesome cocktails. dinner is hit or miss
 
-* Oddfellows Happy Hour
+#### Lunch
+* Tacos Chukis - Everyone's favorite taco spot. House taco is where it's at!
+* Mirch Masala - I love every dish at their Indian Buffet
+* Joe Bar - my favorite wfh spot and solid lunch options. very homey, great music playing and art displays
+* Other Coast Cafe - sandwich shop
+* OOINK - mapo tofu ramen
 
-* Elliott Bay Bookstore
+#### Dinner
+* Kedai Makan — Malaysian food + tasty drinks.
+* Lionhead - fancy Szechuan food 
+* Betsutenjin Ramen - small cozy spot big long bar you can sit at
+* Qin Xi'an Food - hand-pulled noodle shop that's been blowing up
+* Wedgwood Vegetarian Thai - love the silver noodles
 
+#### Dessert
+* Kurt Farm Shop - super rich ice cream inside the charming Chophouse Row
+* Frankie & Jo's - delicious plant based ice cream
+
+#### Other
+* Mystery Soda Machine (Currently out for a [walk](https://www.facebook.com/184905308242525/photos/a.211267202273002/1856138091119230/?type=3&theater))
 * Cal Anderson Park
+* Streissguth Gardens - enchanted garden!
+* Frye Art Museum - highlighting modern and local artists - always free!
+* SIFF 
 
+#### Shopping
+* Lifelong Thrift - great selection, prices, and cause
+* Elliott Bay Bookstore
 * Totokaelo — High end fashion boutique. Lovely shoe display <3
 
-* Molly Moon’s Ice cream
-
-* Kedai Makan — super popular Malaysian food
-
-* Frye Art Museum (I’ve never actually been but it’s free and people freaking love it)
-
-* Favorite bars/cocktail lounges:
-
-    * Pine Box — big long community tables and incredible beer selection
-
-    * Knee High Stocking Company — press the doorbell to be let in <3
-
-    * Stumbling Monk — small, dark, and laid back. don’t get mad when your belgian is served warm
-
-    * Witness
+#### Drinks
+* Montana - dive bar, order yourself a moscow mule, picklebacks, and some fernet (on tap!)
+* Bait Shop - funky dive bar. tasty wings and junky foods
+* Knee High Stocking Company — speakeasy feel
+* Stumbling Monk — small, dark, muggy and laid back. don’t get mad when your belgian is served warm    
+* Rumba - best rum selection in town
 
 ### Fremont + Ballard
 
